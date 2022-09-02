@@ -1,6 +1,6 @@
--Eu sou o Maercus Yoshio, gosto de jogar basquete e comida japonesa 
+-Eu sou o Maercus Yoshio, gosto de jogar basquete e comida japonesa :basketball::jp:
  
- -Minha meta é estudar nos Estados Unidos um e entrar em um  time de basquete gringo 
+ -Minha meta é estudar nos Estados Unidos um e entrar em um  time de basquete gringo :us:
 
 -Para isso tenho que treinar, me dedicar as estudos e aprender inglês
 
