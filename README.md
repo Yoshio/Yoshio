@@ -1,5 +1,5 @@
 # oi, eu sou o marcus
--Eu sou o Maercus Yoshio:sunglasses:, gosto de jogar basquete e comida japonesa :basketball::jp:
+-Eu sou o Marcus Yoshio:sunglasses:, gosto de jogar basquete e comida japonesa :basketball::jp:
  
  -Minha meta é estudar nos Estados Unidos um e entrar em um  time de basquete gringo :us:
 
